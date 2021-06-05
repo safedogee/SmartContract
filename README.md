@@ -8,8 +8,14 @@ We built this token on Binance Smart Chain. 10% Tax is Alloctaed on Every Transf
 
 Our Social Links:
 Website : https://safedoge.dog
+
 Twitter : https://twitter.com/SafeDogeBNB
+
 Telegram Announcement : https://t.me/safedogeann
+
 Telegram Group : https://t.me/SafeDogeBNB
+
 GitHub : https://github.com/safedogee
+
 Medium : https://medium.com/@SafeDogeBNB
+
